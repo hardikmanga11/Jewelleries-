@@ -1,2 +1,2 @@
 # Jewelleries-
-Jewelleries 
+Jewelleries for everyone ✨️✨️
